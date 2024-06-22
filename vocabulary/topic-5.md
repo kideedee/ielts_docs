@@ -27,3 +27,81 @@ However, it must be said that costumes are an accessory in these situations, and
 
 Overall, we must recognise and welcome the use of traditional dress in helping to maintain our cultures. However, the forms of story, art and music would appear to be the driving forces in this invaluable process.
 
+## Explanation of the topic vocabulary and examples in Speaking
+**to preserve** = to protext and keep something, usually because it is valuable for some reason
+- Ex: The state preserves ancient buildings because they are part of our heritage.
+
+**rituals** = highly traditional ceremonies which have meaning for the participants
+- Ex: In some coutries, wedding rituals continue for several days.
+
+**parades** = organised processions in public by group of peole, usually to comemorate an event.
+- Ex: In my home town, we have a military parade to mark our Independence Day.
+
+**to transmit** = to communicate a message, literal or symbolic
+- Ex: The monarchy transmit symbols of power through dress and ritual.
+
+*social memes* = social habits or patterns which are transmitted between peole
+- Ex: In Britain, punctuality is a social meme.
+
+**public duty** = the willingness to the public or the state
+- Ex: Civil servants need a sense of public duty
+
+**self-sacrifice** = the willingness to suffer or die for a cause
+- Ex: We remember the self-sacrifice of our wartime generation each year.
+
+**cultural traditions** = traditions carrying cultural importance
+- Ex: Hospitality is a great cultiral tradition in Mediterranean countries.
+
+**mythology, myth** = a classic story from the past which people know is not true but which carries meaning.
+- Ex: There are old myths about gigantic animals in my part of countryside.
+
+**to evoke** = to bring back memories or feelings
+- Ex: Our national flag evokes strong emotions whenever we see it.
+
+**medieval** = adjective of Middle Ages, roughly 1050 to 1400 in European history
+- Ex: France has some superb medieval architecture, which I saw on my gap year.
+
+**ceremonies** = a ceremony is similar to a ritual, usually involing people in authority
+- Ex: The government enters office with a long ceremony at the presidential palace.
+
+**cultural norms** = standard expected of behaviour or ideas
+- Ex: In some countries, marriage between cousins is a cultural norm.
+
+**the fabric of society** = the way that society is connected and maintained
+- Ex: drugs and cime are damaging the fabric of society
+
+**to conserve** = a synonym for 'to preserve'
+- Conservation of old treasures is the main role of our city museum
+
+**to hand something down** (from one generation to the next) = to pass it from parents to children and to their children etc
+- Ex: Cultural values have been handed down for hundreds of years, but now they are starting to disappear.
+
+**heritage** = something inherited (= received/handed down) by one generation from the previous generation
+- Ex: Our countryside is part of our national heritage and we should preserve it carefully.
+
+**legends** = similar to myths, but sometimes containing an element of reality
+- Ex: Robin Hood is a British legend, although most historians agree the character is based on a real person.
+
+**folklore** = old stories and myths/legends, usually transmitted verbally 
+- Ex: African folklore is rich in stories of gods and monsters.
+
+**inheritance** = a synonym for ‘heritage’
+- Ex: Our greatest inheritance as a nation is our independence and fighting spirit.
+
+**fine art** = art by famous or acclaimed painters
+- Ex: Florence in Italy is a key destination for lovers of fine art.
+
+**handicrafts** = skills of making objects by hand, and also the objects themselves 
+- Ex: Many indigenous people make a living by selling handicrafts to tourists.
+
+**opera** = a very formal play with a musical score
+- Ex: La Scala is the name of a famous opera venue in Italy, which I’d like to visit.
+
+**shanties and dirges** = very traditional songs about basic subjects
+ - Ex: Children sometimes sing shanties at primary school.
+
+**linguistic** = the adjective meaning ‘about language’
+- Ex: Linguistic skills are essential for a tour guide in the modern economy.
+
+**media** = a way of communicating
+- Ex: Folklore is a very effective media for transmitting our cultural heritage.
