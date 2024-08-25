@@ -31,3 +31,20 @@ I did have a pet when I was a child. He was a nice dog, and my family named him 
 **- Where do you perfer to keep your pet, indoors or outdoors?**
 
 I think it depends on where I live. If I live in an apartment, in urban, I will keep them indoors because there's no space for them. I will take them for a walk in the afternoon. But, if I have a house with a yard and a garden, then I will leave them outside. Such as dogs, since they are so energetic, need space to run, and play, and keeping them inside may stress them.
+
+# 3. Shoes
+**- Do you like buying shoes? How often?**
+
+Definitely, Buying shoes is my cup of tea, especially soccer boots because I always spend my weekends with my friends playing soccer. In the past, I used to buy a new pair of soccer boots when there was a new model. But now, I think it's not necessary. Saving money is more important now.
+
+**- Have you ever bought shoes online?**
+
+To be honest, I have never bought shoes online. I know buying shoes online have its convinient. But every branch have their sizes, so I have to go for a try in the store to make sure they fit me.
+
+**- How much money do you usually spend on shoes?**
+
+Well, on average, I spend somewhere around 150$ on my footwear. Actually, I often look for some doorbuster deals and never miss any Black Friday ever.
+
+**- Which do you prefer, fashionable shoes or comfortable shoes?**
+
+I believe most people would agree that comfortable shoes are often preferred over stylish shoes. Fashionable shoes undoubtedly look eye-grabbing from a distance, but as it's said the devil is in the details; they mostly lack cushioning and comfort. On the other hand, comfortable shoes are affordable with a great fit.
